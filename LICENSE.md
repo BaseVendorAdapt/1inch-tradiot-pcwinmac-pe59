@@ -1,4 +1,4 @@
-# 
+# Avancé 1inch trading bot flux de travail pour Mac OS | Automatique 1inch trading bot flux de travail pour PC Windows. Avec API d'échange centralisé et ordres stop-loss — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
